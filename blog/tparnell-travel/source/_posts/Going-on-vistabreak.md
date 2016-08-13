@@ -15,7 +15,7 @@ Chester a nearby city, that was founded by the romans in 79 AD, was my first maj
 As I walked around the city I couldn't help but take in the beauty of the Victorian buildings, and the Roman walls. The scenery was stunning, and the history was mind boggling. I took a boat down the Dee river, and I was able to see where witches were forcably drowned in the middle ages. 
 
 
-![chester](img/chester1.jpg)
+![chester](/img/chester1.jpg)
 
 ## Whats next?
 
