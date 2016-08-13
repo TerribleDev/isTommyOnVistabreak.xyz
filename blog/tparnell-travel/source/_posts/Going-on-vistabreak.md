@@ -6,7 +6,7 @@ tags:
 
 13 days is how long I have been on my travels so far. Incase you don't know what a vistabreak is, it is a 4 week time off you get at vistaprint every 5 years. This year is my 5th year.
 
-My holiday began on the First of August, and I immediately took off to the UK. Most of my family live in an area of the UK knwon as Ellesmere Port. After 7 hours of traveling I arrived August 2nd. Tired and jetlagged I spent the first few days relaxing, and eating at Asda (a nearby supermarket).
+My holiday began on the First of August, and I immediately took off to the UK. Most of my family live in an area of the UK knwon as Ellesmere Port. After 7 hours of traveling I arrived August 2nd. Tired and jetlagged I spent the first week or so relaxing, and eating at Asda (a nearby supermarket). I had a blast catching up with family, and just hanging out with them. 
 
 ## Chester
 
@@ -16,6 +16,10 @@ As I walked around the city I couldn't help but take in the beauty of the Victor
 
 
 ![chester](/blog/tparnell-travel/public/img/chester1.jpg)
+
+I ate at Nando's chicken, which I was told was the best chicken in the world. Honestly Nandos stands up as a top resteraunt in my mind now. I ordered a half chicken extra spicy, and 10 lime wings. The chicken was on the upper end of spice, but nothing I couldn't handle. The wings were flavorfull, but were small. Overall a solid 9/10.
+
+
 
 ## Whats next?
 
