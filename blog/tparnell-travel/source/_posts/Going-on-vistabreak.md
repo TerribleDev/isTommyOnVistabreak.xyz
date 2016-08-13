@@ -12,17 +12,17 @@ My holiday began on the First of August, and I immediately took off to the UK. M
 
 Chester a nearby city, that was founded by the romans in 79 AD, was my first major destination. I walked around the busy victorian streets, and was gobsmacked. Where once stood old british stores, now stood American names such as Vans, and Banana Republic. Since the last time I was in England, American consumerism has taken hold. The hearts and minds of people in the UK, now rest in Western influences, and less upon the heritage of England. 
 
-As I walked around the city I couldn't help but take in the beauty of the Victorian buildings, and the Roman walls. The scenery was stunning, and the history was mind boggling. I took a boat down the Dee river, and I was able to see where witches were forcably drowned in the middle ages. 
+As I walked around the city I couldn't help but take in the beauty of the Victorian buildings, and the Roman walls. The scenery was stunning, and the history was mind boggling. I took a boat down the Dee river, and I was able to see where witches were forcibly drowned in the middle ages. 
 
 
 ![chester](/blog/tparnell-travel/public/img/chester1.jpg)
 
-I ate at Nando's chicken, which I was told was the best chicken in the world. Honestly Nandos stands up as a top resteraunt in my mind now. I ordered a half chicken extra spicy, and 10 lime wings. The chicken was on the upper end of spice, but nothing I couldn't handle. The wings were flavorfull, but were small. Overall a solid 9/10.
+I ate at Nando's chicken, which I was told was the best chicken in the world. Honestly Nandos stands up as a top resteraunt. I ordered a half chicken extra spicy, and 10 lime wings. The chicken was on the upper end of spice, but nothing I couldn't handle. The wings flavourful, but small. Overall a solid 9/10.
 
 
 
 ## Whats next?
 
-I plan on visting the [Pontcysyllte Aqueduct](https://en.wikipedia.org/wiki/Pontcysyllte_Aqueduct), and other parts of wales. I am near liverpool, so I have to go to the [Albert dock](https://en.wikipedia.org/wiki/Albert_Dock). My grandfather has made me promise to go to the beatles museaum with him. 
+I plan on visting the [Pontcysyllte Aqueduct](https://en.wikipedia.org/wiki/Pontcysyllte_Aqueduct), and other parts of wales. I am near liverpool, so I have to go to the [Albert dock](https://en.wikipedia.org/wiki/Albert_Dock). My grandfather has made me promise to go to the beatles museum with him. 
 
 I also plan on taking pictures of my old school, and the town I lived in as a child. I havn't blogged much as I have been very busy catching up with family. I plan on starting to kick up blogging more, so stay tuned.
