@@ -21,4 +21,4 @@ As I walked around the city I couldn't help but take in the beauty of the Victor
 
 I plan on visting the [Pontcysyllte Aqueduct](https://en.wikipedia.org/wiki/Pontcysyllte_Aqueduct), and other parts of wales. I am near liverpool, so I have to go to the [Albert dock](https://en.wikipedia.org/wiki/Albert_Dock). My grandfather has made me promise to go to the beatles museaum with him. 
 
-I also plan on taking pictures of my old school, and the town I lived in as a child so stay tuned!
+I also plan on taking pictures of my old school, and the town I lived in as a child. I havn't blogged much as I have been very busy catching up with family. I plan on starting to kick up blogging more, so stay tuned.
